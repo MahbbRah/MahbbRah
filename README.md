@@ -1,6 +1,6 @@
 # 💫 About Me:
 🔭 Up For Collaboration ~ You may reach via my email address.<br/>
-🌱 Top Rated Developer on Upwork | Open for opportunity & collaboration
+🌱 Ex-Top Rated Developer on Upwork | Open for opportunity & collaboration
 
 
 ## 🌐 Socials:
