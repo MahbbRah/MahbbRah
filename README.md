@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as a Software Developer for a US Company.<br/>
+🔭 Up For Collaboration ~ You may reach via my email address.<br/>
 🌱 Top Rated Developer on Upwork | Open for opportunity & collaboration
 
 
